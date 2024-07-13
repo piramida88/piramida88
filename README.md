@@ -3,7 +3,7 @@ Piramida88 | Piramida 88 Agen Hiburan Online Terpercaya
 
 Selamat datang di dunia hiburan online bersama Piramida88! Apakah Anda mencari platform hiburan yang dapat diandalkan, menawarkan berbagai permainan menarik, dan memberikan pengalaman yang menyenangkan? Anda berada di tempat yang tepat. Dalam artikel ini, kita akan membahas mengapa Piramida88 adalah pilihan terbaik untuk hiburan online, keunggulan yang ditawarkan, dan bagaimana Anda dapat bergabung serta menikmati semua manfaatnya.
 
-[![daftar-slot](https://i.ibb.co.com/8DMQ291/daftar-slot.gif)](https://about.me/simonadam)
+[![daftar-slot](https://i.ibb.co.com/8DMQ291/daftar-slot.gif)](https://about.me/simonadamtanoto)
 
 Apa Itu Piramida88?
 -------------------
